@@ -1,0 +1,1 @@
+#### Este código é de uso livre, e de permissão concedida para quem quiser fazer uso.
